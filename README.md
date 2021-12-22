@@ -1,0 +1,2 @@
+# Novel-Intramedullary-Nail-Design-To-Improve-Healing-Of-Spiral-Fractures
+Various fracture fixation methods have been utilized to promote fracture healing, based on the type and location of the fracture. Intramedullary (IM) nails have been long used to treat spiral fractures located distal to the knee and ankle. Consequently, this analysis aims to propose a novel IM nail design for the treatment of spiral fractures based on a given case (33-year-old man), which aims to reduce stress shielding and avoid re-surgery. 
